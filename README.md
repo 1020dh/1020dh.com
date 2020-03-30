@@ -4,6 +4,7 @@
 1020导航最新网址：https://www.2040dh.com<br>
 1020导航地址<br>
 防屏蔽地址①：https://www.1020dh.com/<br>
+防屏蔽地址②：https://gitee.com/dh1020/aa/<br>
 防屏蔽地址②：https://github.com/1020dh/1020dh.com<br>
 动动手指将本地址发布页收藏起来，永不迷路。<br>
 
