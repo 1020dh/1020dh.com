@@ -1,7 +1,7 @@
 # - 1020导航最新网址发布页：X福利导航，满足您欲望！ -
-# - https://2040dh.com -
+# - https://1020dh.space -
 1020导航永久域名：https://www.1020dh.com<br>
-1020导航最新网址：https://www.2040dh.com<br>
+1020导航最新网址：https://www.1020dh.space<br>
 1020导航地址<br>
 防屏蔽地址①：https://www.1020dh.com/<br>
 防屏蔽地址②：https://gitee.com/dh1020/aa/<br>
